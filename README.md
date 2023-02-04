@@ -5,6 +5,6 @@
 ### Here is the download link: https://t.me/old_school_library
 
 
-### 1983 Math Books
-### 1996 Math Books
+### 1983 NCTB Math Books
+### 1996 NCTB Math Books
 
